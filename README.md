@@ -1,1 +1,1 @@
-# my-lalithapriya-repository
+# my-lalithapriya-repo
